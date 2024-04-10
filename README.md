@@ -1,4 +1,4 @@
-# Welcome to DenGames
+# Welcome to Triumph.gg Clips
 
 ## 🚀 Coming Soon!
 
